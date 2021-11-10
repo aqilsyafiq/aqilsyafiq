@@ -1,0 +1,1 @@
+Hello, my name is Aqil, I am a graphic designer, UI & UX designer, and a Flutter Developer from Indonesia. I have been in these three jobs for 2 years, many clients are happy with the results of my work and they are very satisfied with the results. I hope we can work together, Thank you :)
